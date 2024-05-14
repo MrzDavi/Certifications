@@ -1,2 +1,2 @@
 # Certifications
-Trophy room
+Trophy room 🏆
